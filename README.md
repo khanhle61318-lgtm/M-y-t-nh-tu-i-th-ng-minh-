@@ -1,2 +1,2 @@
-# M-y-t-nh-tu-i-th-ng-minh-
+may tinh tuoi thong minh
 tính được tuổi của bạn
